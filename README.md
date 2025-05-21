@@ -13,6 +13,7 @@
 <ul>
   <li><strong>Monete illimitate.</strong></li>
   <li><strong>Stelle illimitate.</strong></li>
+  <li><strong>Mosse illimitate.</strong></li>
   <li><strong>Vite illimitate.</strong></li>
   <li><strong>Potenti booster illimitati.</strong></li>
   <li><strong>Decorazioni premium illimitate.</strong></li>
