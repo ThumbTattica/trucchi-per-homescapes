@@ -21,7 +21,15 @@
 
 <p>Con i <strong>trucchi per Homescapes</strong>, ogni giocatore potrà godersi l’intero gioco senza tempi di attesa o la frustrazione di dover ripetere un livello più volte. Sarai in grado di personalizzare ogni ambiente secondo i tuoi gusti e sbloccare contenuti esclusivi normalmente accessibili solo con acquisti in-app. Le possibilità diventano infinite, e il divertimento cresce a ogni partita.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Homescapes](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Funzionalità dei nostri trucchi per Homescapes</h2>
 
@@ -92,4 +100,12 @@
 
 <p><strong>Più di 100.000 utenti</strong> hanno già scelto il nostro generatore, e ogni giorno nuovi giocatori confermano l'efficacia dei nostri trucchi. Unisciti a loro oggi stesso. Ogni secondo che passa è un'opportunità persa!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Homescapes](https://tinyurl.com/ThumbTattica)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ThumbTattica">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
